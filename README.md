@@ -4,5 +4,5 @@ Kelompok 3 (BN)
 - Sulthan
 - Dzaki
 - Afriza
-- 
+- Jihan
 - 
